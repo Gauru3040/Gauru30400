@@ -1,4 +1,4 @@
-## Hi there ,👋
+
 ![Gaurav Cover Letter](https://i.postimg.cc/3w8x3CT2/Black-and-Yellow-Modern-Free-e-Course-Twitter-Cover-2.gif) 
 
 
